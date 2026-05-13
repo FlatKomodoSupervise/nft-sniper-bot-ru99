@@ -1,4 +1,4 @@
-# 
+# AI-powered nft sniper bot | simulation-mode + proxy-transactions offers the most advanced nft sniper bot, with simulation-mode and proxy-transactions. Ideal for professional NFT
 
 
 
